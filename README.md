@@ -36,4 +36,4 @@ Spawn Studios' team is a core of a highly skilled professionals with deeply pass
 ## Further Information
 
 To get more information on the Crazy Bikers 3 project please feel free to visit 
-[SPAWN STUDIOS webpage](http://www.spawnstudios.com/) or email to fredericoalvesJS@gmail.com or contact@fredericoalves.uk
+[SPAWN STUDIOS webpage](http://www.spawnstudios.com/) or email to fredericoalves.info@gmail.com
